@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+I’m currently learning almost everything, I hope I can write here something as my skill asap. 
+Keep your fingers crossed for me 🤞
 <!--
 **Finikeji/Finikeji** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
